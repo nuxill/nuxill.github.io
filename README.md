@@ -1,4 +1,4 @@
 # nuxill.github.io
 Web Sitesi
 
-Neir naber
+Efe yarra yedin ŞAKDŞAKDLALDS
