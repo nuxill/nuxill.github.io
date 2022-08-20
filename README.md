@@ -1,4 +1,4 @@
 # nuxill.github.io
 Web Sitesi
 
-Efe yarra yedin ŞAKDŞAKDLALDS
+https://images.app.goo.gl/oL5U3hmiDxHEQKgW9
